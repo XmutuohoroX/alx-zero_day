@@ -1,1 +1,1 @@
-not empty lol
+so alx told me to edit this for the culture
